@@ -1,6 +1,6 @@
 # Das Regelwerk der Regeln
 
-1. Du wirst nur schlauer, wenn du gegen schlauerer Gegner spielst.
+1. Du wirst nur schlauer, wenn du gegen schlauere Gegner spielst.
 1. Der Klügere gibt nach.
 1. Dumm ist der, der Dummes tut.
 1. Gib niemals auf.
